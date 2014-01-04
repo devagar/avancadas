@@ -65,7 +65,7 @@ Recomendo que instalem o programa [VLC](https://www.videolan.org/vlc/) este prog
 
 ### O tema deste curso
 
-**O conceito das costas nas prática**
+**O conceito das costas nos diversos níveis do Zhan Zhuang Chi Kung**
 
 Vamos explorar o temas das costas quer nas posturas, posturas laterais, shi-li e passos como forma de entender o potencial que esta área encerra na prática do Zhan Zhuang Chi Kung.
 
